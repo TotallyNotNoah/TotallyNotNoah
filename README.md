@@ -2,7 +2,7 @@
 - 👀 I’m interested in: making disord servers
 - 🌱 I’m currently learning: I'm in school so everyting lol
 - 💞️ I’m looking to: partner with discord
-- 📫 How to reach me: don't
+- 📫 How to reach me: don't i'm a minor
 
 <!---
 TotallyNotNoah/TotallyNotNoah is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
